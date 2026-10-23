@@ -10,3 +10,5 @@ You can send the funds for my coffee via PayPal at https://www.paypal.com - cybe
 
 
 ![alt_image](https://github.com/cyberlizard204/macsBLUR/blob/14b531eba4a2549b0c96ab3562eaa2b7adb5c1d5/without%20macsBLUR.jpg)
+
+![alt_image](https://github.com/cyberlizard204/macsBLUR/blob/53b5ba44cabecb583dc2da08f24e7f6e9448b1cf/with%20macsBLUR.jpg)
